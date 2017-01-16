@@ -1,7 +1,7 @@
 
 ## SHORT TERM
 
-Misc remidners while in the heat of adapting the adpater.
+Misc reminders while in the heat of adapting the adpater.
 
 
 ## LONG TERM
